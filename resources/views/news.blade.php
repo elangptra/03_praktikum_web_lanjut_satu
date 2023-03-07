@@ -1,0 +1,1 @@
+<h1>Ga ada berita bang</h1>
